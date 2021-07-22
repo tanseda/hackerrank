@@ -9,4 +9,5 @@ Nasil etmeli de aglayabilmeli
 farkina bile varmadan?
 Nasil etmeli de aglayabilmeli
 ayipsiz,
+asikare,
 yagmur misali?
