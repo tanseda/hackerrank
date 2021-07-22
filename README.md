@@ -8,8 +8,5 @@ Random words here "to be or not to be"
 Nasil etmeli de aglayabilmeli
 farkina bile varmadan?
 Nasil etmeli de aglayabilmeli
-ayipsiz
-
-asikare,
-
+ayipsiz,
 yagmur misali?
